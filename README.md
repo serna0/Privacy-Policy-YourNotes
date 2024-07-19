@@ -1,7 +1,5 @@
 Privacy Policy
 
-Effective Date: [Insert Date]
-
 1.Introduction
 
 Welcome to Your Notes. We are committed to protecting your privacy and ensuring a safe experience while using our app. This Privacy Policy outlines how we collect, use, and protect your personal information.
